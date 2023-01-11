@@ -1,1 +1,1 @@
-# strawy..github.io
+# strawy.github.io
